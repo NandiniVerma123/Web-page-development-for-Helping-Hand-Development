@@ -1,0 +1,2 @@
+# Web-page-development-for-Helping-Hand-Development
+ Our main purpose of this project is to helping for specially abled people like useful for helping deaf people for also learning and specially abled kids for education purpose and also helpful for draw the imagination by their finger tips that is the also part of motivation for specially abled people for used as a gaming part with learning purpose.
